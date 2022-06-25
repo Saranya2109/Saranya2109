@@ -1,3 +1,4 @@
+[Saranya S . Updated Resume (2).pdf](https://github.com/Saranya2109/Saranya2109/files/8984280/Saranya.S.Updated.Resume.2.pdf)
 - 👋 Hi, I’m @Saranya_S
 - 👀 I’m interested in learning niche technologies
 - 🌱 I’m currently learning ML and DS by my own
